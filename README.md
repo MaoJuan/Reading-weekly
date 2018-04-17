@@ -1,4 +1,4 @@
-# Reading-weekly
+# Reading
 Reading for fun.
 
 ## 《流血的仕途（上）》 18.3.12
