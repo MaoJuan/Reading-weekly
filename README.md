@@ -1,5 +1,5 @@
 # Reading-weekly
-Reading for fun.
+Reading for fun-update aperiodically
 
 ## 《流血的仕途（上）》 18.3.12
 ### 1、大器晚成
